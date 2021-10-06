@@ -1,0 +1,1 @@
+# Tugas_Pertemuan_7_Deteksi_Tepi_Nuranisa-Ramli_200209501006
